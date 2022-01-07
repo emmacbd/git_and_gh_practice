@@ -1,0 +1,1 @@
+One of my best travel experiences was going to Cambodia with three of my best friends. One of these friends' mom is Cambodian, and had visited before, so she was able to act as a bit of a tour guide. The best part was going to an island called Koh Rong. I miss traveling.
