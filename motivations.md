@@ -1,0 +1,1 @@
+Several things are motivating me to change my career. First, retail does not pay nearly enough. I would love to worry less about money. I also am looking for a career where I get to keep learning and can collaborate often. Also I am over having to interact with the general public so I can pay rent. 
